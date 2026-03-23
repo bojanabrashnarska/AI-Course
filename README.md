@@ -1,0 +1,2 @@
+# AI-Course
+FINKI AI 2025/26
